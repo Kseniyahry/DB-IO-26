@@ -19,7 +19,7 @@ footer: "ECL 2.0 Licensed | Copyright © [YYYY] [Your Name]"
 
 **[Ксенія Гриценко] [https://t.me/Bull1001]**
 
-**[---] [Посилання email, tg, fb]**
+**[Микита Козачек] [https://t.me/kznik23]**
 
 **[---] [Посилання email, tg, fb]**
 
