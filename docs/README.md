@@ -21,7 +21,7 @@ footer: "ECL 2.0 Licensed | Copyright © [YYYY] [Your Name]"
 
 **[Микита Козачек] [https://t.me/kznik23]**
 
-**[---] [Посилання email, tg, fb]**
+**[Ілля Голубєв] [https://t.me/impossiblerage]**
 
 **[---] [Посилання email, tg, fb]**
 
