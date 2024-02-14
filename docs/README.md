@@ -13,11 +13,17 @@ footer: "ECL 2.0 Licensed | Copyright © [YYYY] [Your Name]"
 
 **[Окрошко Ярослав] [https://t.me/Glimsura]**
 
-**[Поволоцький Ярослав] [https://t.me/X_Rader_zit]**
+**[Ярослав Поволоцький] [https://t.me/X_Rader_zit]**
 
-**[Єрмак Олександр] [https://t.me/ZapeRFeed]**
+**[Олександр Єрмак] [https://t.me/ZapeRFeed]**
 
-**[ім’я ПРІЗВИЩЕ] [Посилання email, tg, fb]**
+**[Ксенія Гриценко] [https://t.me/Bull1001]**
+
+**[---] [Посилання email, tg, fb]**
+
+**[---] [Посилання email, tg, fb]**
+
+**[---] [Посилання email, tg, fb]**
 
 **Керівник**
 
