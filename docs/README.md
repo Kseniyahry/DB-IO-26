@@ -23,7 +23,7 @@ footer: "ECL 2.0 Licensed | Copyright © [YYYY] [Your Name]"
 
 **[Ілля Голубєв] [https://t.me/impossiblerage]**
 
-**[---] [Посилання email, tg, fb]**
+**[Нізар Аль-Мраят] [https://t.me/rickowensoffline]**
 
 **Керівник**
 
